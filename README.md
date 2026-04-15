@@ -11,3 +11,6 @@ https://7.laramieriverlodge.com/
 https://8.laramieriverlodge.com/
 https://9.laramieriverlodge.com/
 https://10.laramieriverlodge.com/
+
+alt proxies
+https://united.axsetubal.pt/
