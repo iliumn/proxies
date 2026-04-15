@@ -1,4 +1,8 @@
 # uniUB
+
+https://login.oaklandscioly.org/#media
+
+alt links
 https://1.laramieriverlodge.com/
 https://2.laramieriverlodge.com/
 https://3.laramieriverlodge.com/
