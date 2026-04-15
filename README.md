@@ -1,3 +1,4 @@
+UniUB
 https://login.oaklandscioly.org/#media
 
 alt links
@@ -12,5 +13,5 @@ https://8.laramieriverlodge.com/
 https://9.laramieriverlodge.com/
 https://10.laramieriverlodge.com/
 
-alt proxies
+Interstellar
 https://united.axsetubal.pt/
