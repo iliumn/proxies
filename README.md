@@ -1,4 +1,4 @@
-UniUB
+UniUB - 
 https://login.oaklandscioly.org/#media
 https://1.laramieriverlodge.com/
 https://2.laramieriverlodge.com/
@@ -11,12 +11,12 @@ https://8.laramieriverlodge.com/
 https://9.laramieriverlodge.com/
 https://10.laramieriverlodge.com/
 
-Interstellar
+Interstellar - 
 https://united.axsetubal.pt/
 https://staticin.pages.dev/
 https://bd2b0c9e.intermath.pages.dev/
 
-OverCloaked
+OverCloaked - 
 https://elit3-67.b-cdn.net/
 https://overunder5.b-cdn.net/
 https://economics-71128501467194074.b-cdn.net/
