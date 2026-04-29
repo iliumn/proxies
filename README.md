@@ -1,5 +1,5 @@
 UniUB - 
-https://login.oaklandscioly.org/#media
+https://login.oaklandscioly.org/
 https://1.laramieriverlodge.com/
 https://2.laramieriverlodge.com/
 https://3.laramieriverlodge.com/
@@ -12,6 +12,7 @@ https://9.laramieriverlodge.com/
 https://10.laramieriverlodge.com/
 
 Interstellar - 
+https://envy-vile.surajlekhak.com.np/
 https://united.axsetubal.pt/
 https://staticin.pages.dev/
 https://bd2b0c9e.intermath.pages.dev/
