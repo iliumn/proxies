@@ -23,3 +23,17 @@ https://overunder5.b-cdn.net/
 https://economics-71128501467194074.b-cdn.net/
 https://science-16585239768395201503.b-cdn.net/
 https://economics-77417416132551624.b-cdn.net/
+
+Shadow - 
+https://eagerwriting.brgv-os.ro/
+https://rapidbiology.brgv-os.ro/
+https://easywriting.brgv-os.ro/
+https://cleverhistory.brgv-os.ro/
+https://clearhistory.brgv-os.ro/
+https://aptesting.b-cdn.net/
+https://grammar.b-cdn.net/
+https://eagerlessons.caheobay.com/
+https://rapidmath.fpva.ru/
+https://broadreading.caheobay.com/
+https://guidedgeometry.fpva.ru/
+https://activestudy.caheobay.com/
